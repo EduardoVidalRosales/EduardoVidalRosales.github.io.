@@ -1,2 +1,0 @@
-# EduardoVidalRosales.github.io.
-website
